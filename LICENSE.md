@@ -1,4 +1,4 @@
-
+Enhance Todoist for macOS with elite Utility for Todoist for macOS - collaboration and AI assistant, the #1 utility. Includes collaboration and AI assistant for a smoother
 
 
 
